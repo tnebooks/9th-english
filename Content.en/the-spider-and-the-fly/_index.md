@@ -42,5 +42,7 @@ Up jumped the cunning Spider, and fiercely held her fast.He dragged her up his w
 
 And now dear little children, who may this story read, To idle, silly flattering words, I pray you ne’er give heed: Unto an evil counsellor, close heart and ear and eye, And take a lesson from this tale, of the Spider and the Fly.
 
+**About The Author**
+
 **Mary Botham Howitt**
  (1799-1888) was an English poet. She was born at Coleford, in Gloucestershire. She was educated at home and read widely. She commenced writing verses at a very early age. Together with her husband William Howitt, she wrote over 180 books.
