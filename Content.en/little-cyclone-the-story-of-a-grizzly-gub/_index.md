@@ -37,5 +37,10 @@ When little Cyclone's travelling box was opened, and he found himself free in th
 
 From that time on Cyclone's position has been assured. He is treated with the respect that a good forearm inspires, but being really a fine-spirited, dignified little grizzly, he attacks no one, and never has had a fight.
 
+**About The Author**
+
+**William Temple Hornaday, Sc.D. (December 1, 1854 - 
+March 6, 1937)** was an American z o o l o g i s t , conservationist, taxidermist, and author. He was a pioneer in the early wild life conversation movement in the United States. During his life time he published many books and articles on the need for conservation of wild life.
+
 
 
