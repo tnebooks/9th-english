@@ -71,6 +71,11 @@ And the teachers were people…
 
 The mechanical teacher was flashing on the screen: “When we add fractions ½ and ¼… Margie was thinking about how the kids must have loved it in the old days. She was thinking about the fun they had.
 
+**About The Author**
+
+**Isaac Asimov**, born on January 2nd, 1920 was an 
+American writer and professor of Biochemistry at Boston University. He was known for his work of science fiction and 'popular science'. Asimov was a prolific writer and edited more than 500 books, an estimated 90,000 letters and postcards. Asimov wrote 'Hard Science Fiction' along with Robert A. Heinlein and Arthur C. Clarke. He was considered one of the best science fiction writers during his lifetime
+
 
 
 
