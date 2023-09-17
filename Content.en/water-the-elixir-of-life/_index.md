@@ -76,6 +76,10 @@ The measures necessary to control the movement of water and conserve the supplie
 
 In one sense, water is the commonest of liquids. In another sense, it is the most uncommon of liquids with amazing properties which are responsible for its unique power of maintaining animal and plant life. The investigation of the nature and properties of water is, therefore, of the highest scientific interest and is far from an exhausted field of research.
 
+**About The Author**
+
+**Sir Chandrasekhara Venkata Raman (7 November 1888 – 21 November 1970) was an Indian physicist born in Tiruchirappalli**. He carried out ground-breaking work in the field of light scattering, which earned him the 1930 Nobel Prize for Physics. He discovered that when light traverses a transparent material, some of the deflected light changes wavelength. This phenomenon, subsequently known as Raman scattering, results from the Raman effect and to commemorate it, February-28 iscelebrated as National Science Day. In 1954, India honoured him with its highest civilian award, the Bharat Ratna.
+
 
 
 
