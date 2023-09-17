@@ -156,3 +156,8 @@ He took it from her and turned it over on his palm.
 She didn’t understand that, but she walked with him to the gate and waited. Where the road turned, he looked back and waved to her. Then he quickened his steps and moved briskly towards the bus stop. There was **sprightliness** in his step, and something cried aloud in his heart. 
 
 The mango scented summer breeze made the blood course in his veins, and he forgot, for a moment, that he couldn’t climb trees any more….
+
+
+**About Author**
+Ruskin Bond was born on 19th May 1934. He is an award winning Indian author of British descent. He is much renowned for his role in promoting children’s literature in India. The Indian council for Child Education has recognized his role in the growth of children’s literature in India. He got the Sahitya Akademi Award in 1992 for 'Our Trees Still Grow in Dehra'. He was awarded the Padmashri in 1999 and Padma Bhushan in 2014. As a prolific writer, he has written over 500 short stories, essays and novels. His popular novel 'The Blue Umbrella' was made into a Hindi film and was awarded 
+the National Film Award for the best children’s film in 2007.
