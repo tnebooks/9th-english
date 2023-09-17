@@ -66,3 +66,7 @@ Tom looked up in her face with just a recognisable twinkle peeping through his g
  ‘I know you was meaning for the best, aunty, and so was I with Peter. It done him good, too. I never see him around so since’
 
  ‘Oh, go ‘long with you, Tom, before you annoy me again. And you try and see if you can’t be a good boy, for once, and you needn’t take any more medicine.’
+
+ **About The Author**
+
+**Samuel Langhorne Clemens** (1835-1910), better known by his pen name Mark Twain, was an American writer, humourist, entrepreneur, publisher and lecturer. Twain was raised in Hannibal, Missouri, which later provided the setting for his novels. His famous works are **The Adventures of Tom Sawyer and The Adventures of Huckleberry Finn**.
