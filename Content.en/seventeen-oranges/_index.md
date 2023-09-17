@@ -127,3 +127,6 @@ I said nothing.
 
  Perhaps Clem was right. I don’t know. I didn’t have time to think about it. I had eaten seventeen large oranges - peels, pips and all. I felt very sick for a week and those oranges kept working away in my stomach.
 
+ **About The Author**
+
+**William John Francis Naughton, known as Bill Naughton (1910-1992) was an Irish-born British playwright and author**. He worked as a weaver, coal-bagger and lorry-driver before he started writing. His preferred environment was working class society, which   is  reflected in much of his work. He wrote many novels,short stories, plays and children’s books. He is best known for the play Alfie. His 1977, children’s novel My Pal Spadger is an account of his childhood in 1920s Bolton
